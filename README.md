@@ -1,1 +1,1 @@
-<div class="tenor-gif-embed" data-postid="9552389465683762324" data-share-method="host" data-aspect-ratio="0.535242" data-width="100%"><a href="https://tenor.com/view/shikanoko-nokonoko-koshitantan-shikonoko-shika-noko-dance-gif-9552389465683762324">Shikanoko Nokonoko Koshitantan Shikonoko GIF</a>from <a href="https://tenor.com/search/shikanoko+nokonoko+koshitantan-gifs">Shikanoko Nokonoko Koshitantan GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+kms
