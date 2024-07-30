@@ -1,1 +1,1 @@
-![bleh](https://files.catbox.moe/o9bwof.gif)
+i have mastered the way of adding pictures onto github intros.
