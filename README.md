@@ -1,2 +1,1 @@
-[![](https://files.catbox.moe/htl83l.png)](https://rentry.co/catnapper)
- 
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=i+love+yaoi+jesus;hehehe)](https://git.io/typing-svg)
